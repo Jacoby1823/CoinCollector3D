@@ -1,0 +1,1 @@
+My group name was Red EVIL, but I have decided to name it Coin Collector run instead. My groupmate decided to drop the class, so this is technically just a solo. My name is Jacob Solorzano. Coin Collector Run is a 3D Game that I would like to be similar to the Cool Math Games game, RUN. Although due to copyright, it will only be similar in thought and not looks.
